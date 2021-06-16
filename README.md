@@ -1,0 +1,1 @@
+- 👋 Hi, I’m @Antoine, i'm consultant (odoo, ERP, Free Softwares, Gnu/Linux) & sometimes teacher, beercrafter too.
